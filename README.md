@@ -1,0 +1,2 @@
+# scripture
+NovelAI图集
